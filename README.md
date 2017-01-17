@@ -1,5 +1,5 @@
 # blogs
 
-Infinity - I wasn't sad when my idea got stolen
+We must accept finite disappointment, but never lose infinite hope. Martin Luther King, Jr.
 
-https://www.linkedin.com/pulse/infinity-i-wasnt-sad-when-my-idea-got-stolen-kapil-rajak?trk=pulse_spock-articles
+https://www.linkedin.com/pulse/how-prepare-difficult-times-kapil-rajak?trk=pulse_spock-articles
